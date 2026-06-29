@@ -1,4 +1,4 @@
-# 
+# Custom CorelDRAW templates for Mac OS | Updated CorelDRAW templates for PC Windows. Featuring linked-assets and preflight-check — optimized for maximum performance on every platform.
 
 
 
